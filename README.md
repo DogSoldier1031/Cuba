@@ -35,7 +35,12 @@ https://www.macrotrends.net/countries/CUB/cuba/gdp-gross-domestic-product
 Why Cuba's extraordinary Covid vaccine success could provide the best hope for low-income countries
 https://www.cnbc.com/amp/2022/01/13/why-cubas-extraordinary-covid-vaccine-success-could-provide-the-best-hope-for-the-global-south.html
 
-Fidel Castro takes blame for 1960s gay persecution
+Fidel Castro takes blame for 1960s gay persecution...“We had so many and such terrible problems, problems of life or death,” Castro said.
+
+“In those moments I was not able to deal with that matter (of homosexuals). I found myself immersed, principally, in the Crisis of October (Cuban Missile Crisis), in the war, in policy questions,” he said.
+
+Official persecution of gays continued into the 1970s before homosexual acts were decriminalized in 1979. Today, Cuba’s medical service provides free sex-change operations.
+
 https://www.reuters.com/article/us-cuba-castro/fidel-castro-takes-blame-for-1960s-gay-persecution-idUSTRE67U4JE20100831
 
 “Cuba has voted to legalise same-sex marriage in a national referendum.
