@@ -26,6 +26,8 @@ https://www.newsweek.com/americans-can-now-expect-live-three-years-less-cubans-1
 How Doctors Became Cuba's Biggest Export
 https://time.com/5467742/cuba-doctors-export-brazil/?amp=true
 
+https://en.m.wikipedia.org/wiki/Operación_Milagro#:~:text=care%20by%202011.-,Over%204%20million%20people%20in%2034%20countries%20had%20received%20free,medical%20personnel%20and%20Venezuelan%20subsidization.
+
 Cuba GDP 1970-2023
 https://www.macrotrends.net/countries/CUB/cuba/gdp-gross-domestic-product
 
