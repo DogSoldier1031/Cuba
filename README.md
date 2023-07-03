@@ -26,6 +26,7 @@ https://www.newsweek.com/americans-can-now-expect-live-three-years-less-cubans-1
 How Doctors Became Cuba's Biggest Export
 https://time.com/5467742/cuba-doctors-export-brazil/?amp=true
 
+Operación Milagro (English: Operation Miracle; also Misión Milagro in Venezuela) is a program of international solidarity launched in 2004 by the governments of Cuba and Venezuela to provide free medical treatment for people with eye problems.[1][2] It additionally provides the countries it operates in with new medical equipment and infrastructure.[3] By 2019, over 4 million people in 34 countries had received free treatment through the program.[4] The program is integrated into the programs of the ALBA.[5]
 https://en.m.wikipedia.org/wiki/Operación_Milagro#:~:text=care%20by%202011.-,Over%204%20million%20people%20in%2034%20countries%20had%20received%20free,medical%20personnel%20and%20Venezuelan%20subsidization.
 
 Cuba GDP 1970-2023
