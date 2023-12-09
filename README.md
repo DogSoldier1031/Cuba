@@ -69,3 +69,28 @@ https://www.aljazeera.com/amp/news/2021/9/28/cuba-begins-commercial-exports-of-i
 
 https://www.reddit.com/r/socialism/s/oU4nLkx5k9
 
+https://blowback.show/Season-2
+
+https://guerrillahistory.libsyn.com/the-history-of-us-sanctions-on-cuba-w-helen-yaffe
+
+https://cuba-solidarity.org.uk/cubasi/article/187/all-in-this-together-cubarsquos-participatory-democracy
+
+https://cuba-solidarity.org.uk/news/article/2657/The-blockade-has-not-ended---An-interview-with-Josefina-Vidal
+
+https://m.youtube.com/watch?feature=shared&v=CIrxuJnil40
+
+https://m.youtube.com/watch?feature=shared&v=h7g2T3BWg9E
+
+https://m.youtube.com/watch?v=DXBYlC4-0bQ
+
+https://m.youtube.com/watch?v=2aMsi-A56ds&feature=youtu.be
+
+https://m.youtube.com/watch?v=s5AJPNGYzkw&feature=youtu.be
+
+https://m.youtube.com/watch?si=nBSfKw2sXurtLNyT&v=j7oitsmSdnA&feature=youtu.be
+
+https://www.plenglish.com/news/2023/04/13/cuban-press-denounces-manipulation-of-young-cubans-on-social-networks/
+
+https://m.youtube.com/watch?v=7NYqIA8aWo0&feature=youtu.be
+
+
