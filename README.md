@@ -67,57 +67,5 @@ https://www.plenglish.com/news/2021/12/16/cuba-extends-protection-to-pregnant-an
 Cuba begins commercial exports of its COVID-19 vaccines
 https://www.aljazeera.com/amp/news/2021/9/28/cuba-begins-commercial-exports-of-its-covid-19-vaccines
 
-Video Source
-
-•	⁠All in this together: Cuba’s Participatory Democracy
-•	⁠La Corea — A Cuban neighborhood that CNN WON'T show you
-•	⁠Meet the U.S. Students Studying Medicine For Free in Cuba
-•	⁠Cubans on the Street React to US Healthcare & Education Costs
-•	⁠How Cuba Works | BadEmpanada
-•	⁠How Democracy In Cuba Works
-•	⁠How Cuba Works Viki1999
-•	⁠How Cuba Works | BadEmpanada
-•	⁠Cuba's Constitution of 2019
-•	⁠Millions of Cubans Vote on New Family Code, LGBT Marriage, Adoption Rights & More
-•	⁠What makes Cuba’s new Family Code the most progressive in the world?
-•	⁠How the Cuban government and people collaborated on the Family Code
-•	⁠Read the code itself. Tip: Use Google translate on desktop to translate the document. This doesn’t work on mobile. (You have to download the document to drag and drop to translate it on the documents tab on Google Translate.
-•	⁠Aleida Guevara, Daughter of Che, Internationalist Doctor: ‘I Do It Because I’m Cuban’
-•	⁠The blockade has not ended (Obama didn’t lift the blockade) - An interview with Josefina Vidal - 2015
-•	⁠Cuba: US Mercenaries Attempt to revive a new media campaign against the revolution
-•	⁠The U.S. is backing protesters in Cuba who are working with literal terrorists in Miami.
-•	⁠Cuba announce new regulations on communications, to fight against bullying, fake news and cyber attacks against cuban society
-•	⁠"Youtubers", "influencers" and the media paid by the USA govt against Cuba.
-•	⁠Cuban press denounces manipulation of young Cubans on social networks
-•	⁠The Truth About Cuban Doctors
-•	⁠Spies, Indentured Servants, or Heroes? Cuban Doctor Responds to U.S. Slanders
-•	⁠The Truth About The Cuba Protests
-•	⁠The Cuba Protests REVEAL Social Media Manipulation in Latin America
-•	⁠‘The US Is A Predator’: Cuban Diplomat on the Blockade & Cuba’s Anti-Imperialism
-•	⁠Economic and media war against socialist societies: The case of US–Cuban relations
-•	⁠The U.S. Embargo on Cuba Is MUCH WORSE Than It Seems
-•	⁠The History of US Sanctions on Cuba w/ Helen Yaffe
-•	⁠The Cuba Project - National Security Archive Declassified CIA Documents
-•	⁠Growing up under EMBARGO in Socialist Vietnam Part 1
-•	⁠Embargoes hurt children - I know, I was one of them! | (Growing Up Under Embargo Part 2) - Luna Oi
-•	⁠Why They Hate The USA: CUBA - Hakim
-•	⁠‘The US Is A Predator’: Cuban Diplomat on the Blockade & Cuba’s Anti-Imperialism
-•	⁠[Full documentary] CUBA: Defending Socialism, Resisting Imperialism [2010]
-•	⁠How Cuban Socialism Survives Against the Empire Next Door, w/ Prof. Helen Yaffe
-•	⁠Blowback Podcast Season 2 - Cuba
-•	⁠r/RealCuba
-
-TAKE CUBA OFF THE STATE SPONSORS OF TERRORISM LIST AND END THE BLOCKADE OF CUBA! (PETITION)
-
-The Absurdity of Listing Cuba as a State Sponsor of Terrorism
-
-VOTE SOCIALIST 2024
-
-Socialist Reconstruction: A Better Future for the United States by the Party for Socialism and Liberation
-
-BOOK LAUNCH | Socialist Reconstruction: A Better Future for the United States - Party for Socialism and Liberation
-
-‘Biden Doesn't Speak For Us’: Socialist Presidential Candidate Slams Biden on Israel Support
-
-https://rapidsave.com/info?url=https%3A%2F%2Fwww.reddit.com%2Fr%2Fsocialism%2Fs%2FnYWHBSGuVC
+https://www.reddit.com/r/socialism/s/oU4nLkx5k9
 
