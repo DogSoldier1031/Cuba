@@ -55,6 +55,9 @@ https://gaysifamily.com/lifestyle/cubas-new-family-code-touted-as-most-inclusive
 When Cuba Provided Crucial Military Aid to African Independence Movements
 https://jacobin.com/2022/05/cuba-castro-angola-namibia-us-soviet-union
 
+"Only six countries have 50 per cent or more women in parliament in single or lower houses: Rwanda (61 per cent), Cuba (53 per cent), Nicaragua (52 per cent), Mexico (50 per cent), New Zealand (50 per cent), and the United Arab Emirates (50 per cent) [8]."
+https://www.unwomen.org/en/what-we-do/leadership-and-political-participation/facts-and-figures#
+
 Cuba has vaccinated most against Covid-19, more than most large, rich countries
 https://www.nbcnews.com/news/amp/rcna9498
 
